@@ -1,0 +1,2 @@
+# https-www.abckidsdentalla.com-blog-sealants-and-dental-health-abc-kids-dental-group-
+Sealants for dental use are a light plastic coating that is applied to teeth’s chewing surface teeth , typically the teeth that are behind (the premolars and the molars) to stop tooth decay. The sealant bonds quickly to the grooves and depressions of the teeth, creating an ointment that protects the tooth’s enamel.
